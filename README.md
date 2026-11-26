@@ -1,0 +1,1 @@
+# studiu_individual_2
